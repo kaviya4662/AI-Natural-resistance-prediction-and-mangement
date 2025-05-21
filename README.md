@@ -1,0 +1,1 @@
+# AI-Natural-resistance-prediction-and-mangement
